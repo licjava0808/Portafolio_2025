@@ -1,1 +1,0 @@
-# Portafolio_2025
